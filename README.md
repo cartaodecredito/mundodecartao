@@ -1,0 +1,2 @@
+# mundodecartao
+O mundo de cartão de Crédito é um canal que visa dar várias dicas sobre cartões de crédito e os perigos a serem evitados quando forem usa-lo. Aqui você terá acesso em primeira mão sobre as atualizações no mundo do Cartões de créditos'.  O nosso canal vai ajuda-lo a entender como é que os cartões de créditos funcionam, as variedades de cartões existentes no pais e no mundo e quais são as melhores opções.  Visite o nosso site https://mundodecartaodecredito.com/
